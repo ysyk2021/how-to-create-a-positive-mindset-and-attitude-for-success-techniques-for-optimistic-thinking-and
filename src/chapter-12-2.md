@@ -1,5 +1,4 @@
-Chapter 12: Conclusion: Developing an Action Plan for Creating a Positive Mindset and Attitude for Success
-==========================================================================================================
+# Developing an Action Plan for Creating a Positive Mindset and Attitude for Success
 
 In this chapter, we will discuss how to develop an action plan for creating a positive mindset and attitude for success.
 

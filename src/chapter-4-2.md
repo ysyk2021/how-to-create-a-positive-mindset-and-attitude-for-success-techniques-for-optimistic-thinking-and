@@ -1,5 +1,4 @@
-Chapter 4: Gratitude and Appreciation: Strategies for Incorporating Gratitude and Appreciation into Daily Routines
-==================================================================================================================
+# Strategies for Incorporating Gratitude and Appreciation into Daily Routines
 
 Gratitude and appreciation can help cultivate a positive mindset and attitude, but it can be challenging to incorporate them into our daily routines. In this chapter, we will cover strategies for making gratitude and appreciation a regular part of your life.
 

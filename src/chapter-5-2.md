@@ -1,5 +1,4 @@
-Chapter 5: Self-Talk and Self-Compassion: Strategies for Changing Negative Self-Talk and Increasing Self-Compassion
-===================================================================================================================
+# Strategies for Changing Negative Self-Talk and Increasing Self-Compassion
 
 Our self-talk and self-compassion can have a significant impact on our mindset and attitude. In this chapter, we will cover strategies for changing negative self-talk and increasing self-compassion.
 

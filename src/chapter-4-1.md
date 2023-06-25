@@ -1,5 +1,4 @@
-Chapter 4: Gratitude and Appreciation: Techniques for Practising Gratitude and Appreciation for Improved Mindset and Attitude
-=============================================================================================================================
+# Techniques for Practising Gratitude and Appreciation for Improved Mindset and Attitude
 
 Practicing gratitude and appreciation can have a powerful impact on your mindset and attitude. In this chapter, we will cover techniques for cultivating gratitude and appreciation in daily life.
 

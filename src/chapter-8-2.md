@@ -1,5 +1,4 @@
-Chapter 8: Goal Setting and Planning: Strategies for Breaking Goals into Small Steps and Celebrating Progress
-=============================================================================================================
+# Strategies for Breaking Goals into Small Steps and Celebrating Progress
 
 Setting goals is an essential part of achieving personal and professional success. However, simply setting a goal is not enough. To achieve our goals, we need to break them down into smaller, more manageable steps and create a plan for achieving each step. In this chapter, we will explore strategies for setting effective goals, breaking them down into small steps, and celebrating progress along the way.
 

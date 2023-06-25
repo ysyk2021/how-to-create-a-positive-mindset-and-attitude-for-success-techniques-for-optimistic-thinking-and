@@ -1,5 +1,4 @@
-Chapter 12: Conclusion: Summarizing Key Points Presented in the Book
-====================================================================
+# Summarizing Key Points Presented in the Book
 
 In this book, we have explored techniques for developing a positive mindset and attitude for success. Let's summarize some of the key points presented throughout the book.
 

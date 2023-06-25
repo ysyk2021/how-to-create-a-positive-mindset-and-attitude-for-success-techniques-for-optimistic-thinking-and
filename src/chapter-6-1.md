@@ -1,5 +1,4 @@
-Chapter 6: Mindfulness and Resilience: Techniques for Practising Mindfulness and Building Resilience
-====================================================================================================
+# Techniques for Practising Mindfulness and Building Resilience
 
 Building mindfulness and resilience can help you navigate life's challenges with a positive mindset and attitude. In this chapter, we will cover techniques for cultivating mindfulness and building resilience.
 

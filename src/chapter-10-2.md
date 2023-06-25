@@ -1,5 +1,4 @@
-Chapter 10: Developing Habits for Positive Mindset and Attitude: Strategies for Sticking to Habits and Seeing Long-Term Results
-===============================================================================================================================
+# Strategies for Sticking to Habits and Seeing Long-Term Results
 
 Developing habits is key to achieving a positive mindset and attitude. When we make positive thinking and behavior a habit, we're more likely to see long-term results. In this chapter, we'll discuss strategies for developing habits for a positive mindset and attitude and sticking to them for long-term success.
 

@@ -1,5 +1,4 @@
-Chapter 3: Understanding Negative Thought Patterns: Techniques for Recognizing Negative Thought Patterns and their Impact on Mindset and Attitude
-=================================================================================================================================================
+# Techniques for Recognizing Negative Thought Patterns and their Impact on Mindset and Attitude
 
 Negative thought patterns can have a significant impact on our mindset and attitude. They can lead to pessimism, anxiety, and depression, and can prevent us from achieving our goals. In this chapter, we'll discuss techniques for recognizing negative thought patterns and their impact on our mindset and attitude.
 

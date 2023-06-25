@@ -1,5 +1,4 @@
-Chapter 8: Goal Setting and Planning: Techniques for Effective Goal Setting and Planning
-========================================================================================
+# Techniques for Effective Goal Setting and Planning
 
 Goal setting and planning are essential for achieving success. By setting clear goals and creating a plan to achieve them, we can increase our motivation and productivity, and ultimately achieve our desired outcomes. In this chapter, we'll explore techniques for effective goal setting and planning to help you create a positive mindset and attitude for success.
 

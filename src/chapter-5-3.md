@@ -1,5 +1,4 @@
-Chapter 5: Self-Talk and Self-Compassion: The Benefits of Positive Self-Talk and Self-Compassion in Encouraging Positive Mindset and Attitude
-=============================================================================================================================================
+# The Benefits of Positive Self-Talk and Self-Compassion in Encouraging Positive Mindset and Attitude
 
 Self-talk and self-compassion are powerful tools for cultivating a positive mindset and attitude. In this chapter, we will explore the benefits of positive self-talk and self-compassion, and techniques for incorporating them into your daily routine.
 
