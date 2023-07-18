@@ -10,5 +10,4 @@ Each chapter includes practical tips and exercises to help you incorporate these
 
 So, if you're ready to transform your mindset and attitude and unlock your full potential for success, let's get started.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
