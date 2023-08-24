@@ -1,5 +1,3 @@
-Chapter 8: Goal Setting and Planning
-====================================
 
 Goal setting and planning are integral components of achieving success. To foster a positive mindset and attitude, we need to set clear goals, break them down into smaller steps, and develop a plan to achieve them. In this chapter, we'll discuss techniques for effective goal setting and planning, strategies for breaking goals into smaller steps and celebrating progress, and the benefits of effective goal setting and planning in encouraging a positive mindset and attitude.
 

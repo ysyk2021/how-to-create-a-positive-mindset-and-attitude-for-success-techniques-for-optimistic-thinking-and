@@ -1,4 +1,3 @@
-# Strategies for Changing Negative Self-Talk and Increasing Self-Compassion
 
 In this chapter, we will explore effective strategies for changing negative self-talk and cultivating self-compassion. By adopting these techniques, you can transform your mindset, increase self-esteem, and develop a positive attitude that supports your journey towards success.
 

@@ -1,5 +1,3 @@
-Chapter 2: Assessing Current Mindset and Attitude
-=================================================
 
 Assessing our current mindset and attitude is an essential step in developing a more positive outlook on life. In this chapter, we'll explore techniques for assessing our current mindset and attitude, strategies for creating a plan and prioritizing changes, and the benefits of assessing our current mindset and attitude in promoting personal accountability and growth.
 

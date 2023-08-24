@@ -1,5 +1,3 @@
-Chapter 6: Mindfulness and Resilience
-=====================================
 
 Techniques for Practising Mindfulness and Building Resilience
 -------------------------------------------------------------

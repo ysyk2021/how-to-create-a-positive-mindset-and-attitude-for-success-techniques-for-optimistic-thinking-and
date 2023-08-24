@@ -1,4 +1,4 @@
-# Introduction
+
 
 Do you feel like negative thoughts and self-doubt are holding you back from achieving your goals? Are you looking for ways to cultivate a more positive mindset and attitude? If so, this book is for you.
 

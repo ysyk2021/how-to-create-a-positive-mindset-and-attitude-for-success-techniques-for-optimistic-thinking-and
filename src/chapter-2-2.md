@@ -1,4 +1,3 @@
-# Strategies for Creating a Plan and Prioritizing Changes
 
 Assessing our current mindset and attitude is an important step in developing a more positive outlook on life. In this chapter, we'll explore strategies for creating a plan and prioritizing changes based on our assessment of our current mindset and attitude.
 

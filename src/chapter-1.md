@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Defining Positive Mindset and Attitude and their Importance in Personal and Professional Life
 ---------------------------------------------------------------------------------------------

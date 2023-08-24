@@ -1,5 +1,3 @@
-Chapter 7: Surrounding Yourself with Positivity
-===============================================
 
 A positive mindset and attitude can be greatly influenced by the people and environment around us. In this chapter, we will explore techniques for identifying and surrounding ourselves with positive influences, strategies for finding positive role models and building support networks, and the benefits of surrounding ourselves with positivity.
 

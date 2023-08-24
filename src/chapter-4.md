@@ -1,5 +1,3 @@
-Chapter 4: Gratitude and Appreciation
-=====================================
 
 Techniques for Practising Gratitude and Appreciation for Improved Mindset and Attitude
 --------------------------------------------------------------------------------------

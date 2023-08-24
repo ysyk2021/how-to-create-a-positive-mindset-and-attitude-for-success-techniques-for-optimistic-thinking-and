@@ -1,5 +1,3 @@
-Chapter 3: Understanding Negative Thought Patterns
-==================================================
 
 Negative thought patterns can have a significant impact on our mindset and attitude, and can prevent us from achieving our goals. In this chapter, we'll discuss techniques for recognizing negative thought patterns, strategies for reducing and replacing negative thoughts with positive ones, and the benefits of managing negative thought patterns in encouraging a positive mindset and attitude.
 

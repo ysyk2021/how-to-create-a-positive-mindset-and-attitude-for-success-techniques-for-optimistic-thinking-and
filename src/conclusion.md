@@ -1,4 +1,4 @@
-# Conclusion
+
 
 In this book, we have explored techniques for developing a positive mindset and attitude for success. Let's summarize some of the key points presented throughout the book.
 

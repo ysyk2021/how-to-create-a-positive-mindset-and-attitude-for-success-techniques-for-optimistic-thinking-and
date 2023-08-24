@@ -1,5 +1,3 @@
-Chapter 10: Developing Habits for Positive Mindset and Attitude
-===============================================================
 
 In this chapter, we will explore techniques and strategies for developing habits that encourage a positive mindset and attitude. By cultivating positive habits, we can create an environment that promotes optimism and increases our chances of success.
 

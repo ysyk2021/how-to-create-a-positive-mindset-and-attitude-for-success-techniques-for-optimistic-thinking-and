@@ -1,5 +1,3 @@
-Chapter 11: Applying Positive Mindset and Attitude in Everyday Life
-===================================================================
 
 Having a positive mindset and attitude is not just beneficial for achieving success, but also for improving our overall quality of life. In this chapter, we will explore techniques for applying positive mindset and attitude in the workplace and beyond, strategies for identifying opportunities to practice positivity, and the benefits of applying positive mindset and attitude in everyday life.
 

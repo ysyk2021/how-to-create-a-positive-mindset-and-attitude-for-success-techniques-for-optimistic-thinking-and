@@ -1,4 +1,3 @@
-# Techniques for Practicing Positive Self-Talk and Self-Compassion
 
 Our self-talk and self-compassion have a significant impact on our mindset and attitude. Positive self-talk can boost our confidence and motivation, while self-compassion can help us overcome setbacks and challenges. In this chapter, we'll discuss techniques for practicing positive self-talk and self-compassion to foster a more positive mindset and attitude.
 
