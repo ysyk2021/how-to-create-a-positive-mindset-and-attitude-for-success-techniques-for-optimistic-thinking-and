@@ -1,5 +1,4 @@
-Chapter 5: Strategies for Creating a Plan and Prioritizing Changes
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for creating a plan and prioritizing changes to develop a positive mindset and attitude for success. By implementing these techniques, you will be able to set clear goals, identify necessary changes, and prioritize your actions accordingly.
 

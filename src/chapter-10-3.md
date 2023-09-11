@@ -1,5 +1,4 @@
-Chapter 6: The Benefits of Developing Habits for a Positive Mindset and Attitude
-================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the numerous benefits that come with developing habits for a positive mindset and attitude. By incorporating these habits into your daily life, you can cultivate optimism, resilience, and ultimately increase your chances of achieving success.
 

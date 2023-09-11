@@ -1,5 +1,4 @@
-Chapter 7: Strategies for Identifying Opportunities to Practice a Positive Mindset and Attitude
-===============================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for identifying opportunities to practice a positive mindset and attitude. By being proactive in seeking out these opportunities, you can reinforce positive thinking habits and enhance your chances of achieving success.
 
